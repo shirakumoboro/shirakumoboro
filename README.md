@@ -13,4 +13,4 @@
 [sign ata](https://anchorred.atabook.org/) // [strwpge](https://miceraser.straw.page/)
 </div>
 
-ㅤㅤㅤㅤ ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) 
+ㅤ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) 
