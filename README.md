@@ -1,16 +1,16 @@
-## Hi there 👋
+ㅤ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) 
+<p align="center">
+<img src="https://i.pinimg.com/736x/06/68/73/066873aa724ef25cd168476264c9850d.jpg" alt="Alt text" width="600" height="600">
+</p>
+<div align="center">
+  
+***HEY! HEY!***
+**call me Anchor, Senzai, Oboro, and Deku!!**
+> Zawa and Hiza is also alright!!
 
-<!--
-**shirakumoboro/shirakumoboro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+16 y.o
 
-Here are some ideas to get you started:
+[sign ata](https://anchorred.atabook.org/) // [strwpge](https://miceraser.straw.page/)
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤ ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) 
