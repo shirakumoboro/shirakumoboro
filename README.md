@@ -10,6 +10,8 @@
 
 16 y.o
 
+PLEASE do not copy my skins!!! PLs ask for inspo huhu
+
 [sign ata](https://anchorred.atabook.org/) // [strwpge](https://miceraser.straw.page/)
 </div>
 
