@@ -1,6 +1,6 @@
 ㅤ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) ![Alt text](https://pix.crd.co/assets/images/gallery22/aaadd8cd_original.gif?v=1466ccea) 
 <p align="center">
-<img src="https://i.pinimg.com/736x/06/68/73/066873aa724ef25cd168476264c9850d.jpg" alt="Alt text" width="600" height="600">
+<img src="https://i.pinimg.com/736x/06/68/73/066873aa724ef25cd168476264c9850d.jpg" alt="Alt text" width="600" height="200">
 </p>
 <div align="center">
   
